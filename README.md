@@ -8,5 +8,7 @@ Vamos juntos?!
 
 Link para jogar: https://yure-pablo.itch.io/ao-infinito-e-alem
 
+Link para assistir à GamePlay completa do jogo: https://drive.google.com/file/d/1PBKyj0TmKoWBSdGjhJgIpeQ24Fg5YyuK/view?usp=sharing
+
 By Yure Pablo.
 
